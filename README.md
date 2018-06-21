@@ -1,1 +1,0 @@
-# mamirin.github.io
